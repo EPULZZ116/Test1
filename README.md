@@ -6,3 +6,7 @@ kaksk
 d
 edegdc
 bbbbbbbbbbotttttttt
+
+satu kl kenal aku lepas 
+aku pijak 
+cina tu
